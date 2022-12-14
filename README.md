@@ -1,0 +1,2 @@
+# rinto1.
+tesmining
